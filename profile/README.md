@@ -1,4 +1,4 @@
-## Welcome to Ellexis Technologies® 💙
+## Welcome to Ellexis Technologies® 💚
 
 **A subsidiary of <a href="https://ceylontravelex.com">CTX®</a>**
 
